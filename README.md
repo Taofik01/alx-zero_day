@@ -1,1 +1,1 @@
-My first readme
+gold membership all the way
